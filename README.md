@@ -2,7 +2,7 @@
 
 Science computer student
 ------------------
-* 🇧🇷 I live in São Paulo, Brazil
+* 🇧🇷 I live in Brasília, Brazil
 * ✉️ Contact me [lauralacortzimermann@gmail.com](mailto:lauralacortzimermann@gmail.com)
 
 <div align="center">
